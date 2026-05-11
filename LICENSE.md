@@ -1,4 +1,4 @@
-# 
+# rare Extension for Adobe InDesign for macOS - smart objects and auto-retouch offers the most advanced Adobe InDesign for macOS extension, with smart objects and auto-retouch.
 
 
 
